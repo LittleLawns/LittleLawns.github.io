@@ -1,2 +1,1 @@
-Alt-H1
-======We make your garden smile
+We make your garden smile
